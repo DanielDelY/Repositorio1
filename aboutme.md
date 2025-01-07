@@ -1,3 +1,3 @@
 # Sobre mi
-##Hobbies
+## Hobbies
 Videojuegos. Informática. Comic y dibujo.
