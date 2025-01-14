@@ -6,4 +6,3 @@ Videojuegos. Informática. Comic y dibujo.
 
 
 :)
-Quiero una litografia de Ranni!!
